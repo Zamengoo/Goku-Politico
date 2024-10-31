@@ -1,1 +1,1 @@
-# Goku-Pol-tico
+# Goku-Político
